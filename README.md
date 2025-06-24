@@ -11,7 +11,7 @@
 
 - ALX AWS Cloud Computing programme
 
-- ALTSchool CyberSecurity Diploma
+- ALTSchool CyberSecurity Diploma programme
 
 
 # Thank You for Visiting My Page!
