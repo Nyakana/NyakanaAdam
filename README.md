@@ -20,7 +20,7 @@ I'm currently looking for a great team to join and I would love to hear from you
 
 # Let's Chat
 
-Social:
+Socials:
 
 LinkedIn: https://www.linkedin.com/in/nyakana-adam
 
