@@ -13,6 +13,8 @@
 
 - ALTSchool CyberSecurity Diploma programme
 
+- CompTIA Network+
+
 
 # Thank You for Visiting My Page!
 
