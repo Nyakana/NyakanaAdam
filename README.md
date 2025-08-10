@@ -20,7 +20,7 @@
 
 I'm currently looking for a great team to join and I would love to hear from you. Please use the link below to set up a time to chat via linkedin.
 
-# Let's Chat
+# Let's Chat.
 
 Socials:
 
