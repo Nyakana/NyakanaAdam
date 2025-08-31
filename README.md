@@ -16,7 +16,7 @@
 - CompTIA Network+
 
 
-# Thank You for Visiting My Page!
+# Thank You for Visiting My Page...!
 
 I'm currently looking for a great team to join and I would love to hear from you. Please use the link below to set up a time to chat via linkedin.
 
