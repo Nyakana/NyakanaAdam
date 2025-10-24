@@ -11,7 +11,7 @@
 
 - ALX AWS Cloud Computing programme
 
-- ALTSchool CyberSecurity Diploma programme
+- ALX CyberSecurity Diploma programme
 
 - CompTIA Network+
 
