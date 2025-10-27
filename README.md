@@ -3,7 +3,7 @@
 
 # Certifications:
 
-- Google IT Support Professional Certification (Completed a 6-month course)
+- Google IT Support Professional Certification
 
 - Google AI Essentials
 
